@@ -1,0 +1,1 @@
+# studdy-buddy-2.0
